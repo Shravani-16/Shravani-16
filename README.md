@@ -1,6 +1,6 @@
 ### Hi there 👋 Shravani Here
 ## new to this space 
-## learning one step at timne
+## learning one step at time
 
 
 
